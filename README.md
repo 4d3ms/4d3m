@@ -1,0 +1,3 @@
+- 👋 Ben adem
+- 👀 Şuanda java ,python ,c# ,öğreniyorum
+- 📫 ademsrcicek@gmail.com
